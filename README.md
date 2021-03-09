@@ -17,3 +17,6 @@ Fri.: School, Editing (1-4pm), Review (1hr 1/2) , Upload
 Sat.: Chill, Finish some classwork if I have any unfinished
 
 Sun.: CHURCH
+
+
+Contact me: JordiS0443@hstat.org
