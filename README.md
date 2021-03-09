@@ -20,3 +20,5 @@ Sun.: CHURCH
 
 
 Contact me: JordiS0443@hstat.org
+
+Random Fact: I enjoy playing acoustic guitar and bass
