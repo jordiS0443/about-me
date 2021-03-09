@@ -4,6 +4,7 @@ I enjoy learning about cameras and anything related to production (camera operat
 doing behind the scenes work on the online services. I really enjoy doing it and I hope to get better as I grow more. 
 
 My Schedule (may vary depending of what day)
+
 Monday: School (Do classwork, attend class, etc.), chill and eat
 
 Tues.:School, Eat,  Prepare for recording session at church, RECORDING, Get back home and chill a bit before going to sleep
