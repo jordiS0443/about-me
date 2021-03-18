@@ -32,5 +32,5 @@ doing behind the scenes work on the online services. I really enjoy doing it and
 
 #### Ways to Contact Me
 Email: JordiS0443@hstat.org (School).   
-J.Simbana256@gmail.com
+       J.Simbana256@gmail.com (Personal)
 
